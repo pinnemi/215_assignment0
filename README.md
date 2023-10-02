@@ -2,4 +2,4 @@
 Emily Pinneo
 - Befriend the campus crows
 - Participate in maker sale
-- Finish nudibranch drawing
+- Finish nudibranch drawing and work on painting
